@@ -1,2 +1,26 @@
-# otamamin-maywa_denki
-Study of the instrument: "otamamin". The original creation belongs to the company Maywa Denki (Nobumichi Tosa).
+# ⊹˚₊ 𝄢 ♬˚₊‧ CASE 01: OTAMAMIN - Study of a light instrument ‧₊˚♪ 𝄞 ₊˚⊹ (English)
+***
+## Introduction
+
+
+***
+
+![image](./image/.)
+
+▼ Description. Source: ---
+
+
+
+
+---------------------------------------------------------------------------------------
+# ⊹˚₊ 𝄢 ♬˚₊‧ CASO 01: OTAMAMIN - Estudio de un instrumento de luz ‧₊˚♪ 𝄞 ₊˚⊹ (Español)
+***
+## Introducción
+
+
+***
+
+![image](./image/.)
+
+▼ Descripción. Recurso: ---
+

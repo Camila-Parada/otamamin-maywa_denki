@@ -18,7 +18,7 @@ Earlier this year (2025) ...
 
 ## Introducción
 
-A principio de este año (2025) conocí este objeto en un curso sobre [circuitos eléctricos](https://github.com/disenoUDP/dis8644-2025-1-proyectos). Su simpleza y diseño me cautivaron, por lo que quise tener uno propio. 
+A principio de este año (2025) conocí este objeto en un curso sobre [circuitos eléctricos](https://github.com/disenoUDP/dis8644-2025-1-proyectos). Su simpleza y diseño me cautivaron, por lo que quise tener uno propio. Por ello me dispuse a estudiar este objeto para poder fabricar una réplica.
 
 ***
 

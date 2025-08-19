@@ -22,7 +22,7 @@ A principio de este año (2025) conocí este objeto en un curso sobre [circuitos
 
 ***
 
-![image](./image/.)
+![image](./image/fit=cover,w=920,h=920.png)
 
-▼ Descripción. Recurso: ---
+▼ Maywa Denki Store (s.f.) Otamamin [fotografía]. Maywa denki (https://maywadenki.stores.jp/items/62d935150f683c60cb6ade4d).
 

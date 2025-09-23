@@ -6,13 +6,6 @@ Earlier this year (2025) ...
 
 ***
 
-![image](./image/fit=cover,w=920,h=920.png)
-
-▼ Description. Source: ---
-
-
-
-
 ---------------------------------------------------------------------------------------
 # ⊹˚₊ 𝄢 ♬˚₊‧ CASO 01: OTAMAMIN - Estudio de un instrumento de luz ‧₊˚♪ 𝄞 ₊˚⊹ (Español)
 
